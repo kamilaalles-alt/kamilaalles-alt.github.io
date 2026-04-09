@@ -1,1 +1,1 @@
-# kamilaalles-altc.github.io
+# kamilaalles-alt.github.io
